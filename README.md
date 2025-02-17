@@ -6,6 +6,6 @@ tenho 12 anos
 gosto de sports corinthias 😜
 👀👅
 🏀🧑‍🦰
-!(https://media.tenor.com/9-xnvDQX9eUAAAAM/basketball-ball.gif)[quatro basketballs em cores quentes com um menino dançando]
+!(https://media.tenor.com/9-xnvDQX9eUAAAAM/basketball-ball.gif) [quatro basketballs em cores quentes com um menino dançando]
 
 
