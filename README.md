@@ -6,4 +6,7 @@ tenho 12 anos
 gosto de sports corinthias 😜
 👀👅
 🏀🧑‍🦰
+
 ![gato mostrando a língua com um balão de fala em cima](https://media.tenor.com/9-xnvDQX9eUAAAAM/basketball-ball.gif)
+![gato mostrando a língua com um balão de fala em cima](https://media1.tenor.com/m/iqeV6gUDTcsAAAAd/joelana-joe-cto.gif)
+
