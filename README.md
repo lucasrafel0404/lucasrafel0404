@@ -6,4 +6,4 @@ tenho 12 anos
 gosto de sports corinthias 😜
 👀👅
 🏀🧑‍🦰
-![gato mostrando a língua com um balão de fala em cima](https://media.tenor.com/7y_jWANpVz0AAAAj/cat-cats.gif)
+![gato mostrando a língua com um balão de fala em cima](https://media.tenor.com/9-xnvDQX9eUAAAAM/basketball-ball.gif)
